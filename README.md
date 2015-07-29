@@ -1,7 +1,18 @@
 TopAnimeStream
 ========
+
+Holla anime lovers or I’d rather say Otaku buddies! I sum up a stream for all of us. I have been watching these anime online and change the team a little bit for streaming. I know everyone is crazy about watching anime online rather than downloading it – yeah it’s free! 
+
+Don’t bother to download paid anime anymore – You can watch your top anime stream here – NOW! 
+
+Oppps.. I’ve been watching these anime lately:
+Free
+Genesis of Aquarion and
+Angel beats
+
+
 TopAnimeStream App stream anime & cartoons from popular video streaming sites.
-Works on major pc platform like Windows, Linux & Mac. You can currently watch anime in english, spanish or french.
+Works on major pc platform like Windows, Linux & Mac. You can currently watch anime in english, spanish or french or other languages on [the website](http://www.cheapmovingcompanies.co/california)
 
 TopAnimeStream App is currently in `beta`
 
