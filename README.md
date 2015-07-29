@@ -5,10 +5,7 @@ Holla anime lovers or I’d rather say Otaku buddies! I sum up a stream for all 
 
 Don’t bother to download paid anime anymore – You can watch your top anime stream here – NOW! 
 
-Oppps.. I’ve been watching these anime lately:
-Free
-Genesis of Aquarion and
-Angel beats
+Oppps.. I’ve been watching these anime lately: Free, Genesis of Aquarion and Angel beats
 
 
 TopAnimeStream App stream anime & cartoons from popular video streaming sites.
